@@ -3,7 +3,7 @@
 ✈️优质专线机场送Emby影视服务<br>
 💡Emby主流资源不完全指北<br>
 ✔️资源多,更新快,秒开4K,极速观影<br>
-🦋QuantumultX等最佳懒人配置<br>
+🦋QuantumultX等最佳懒人配置(进阶)<br>
 YoKerG | 游客科技圈: https://t.me/YoKerG<br>
 资源分享：https://t.me/lgShare<br>
 <br>
