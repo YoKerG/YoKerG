@@ -1,5 +1,14 @@
 **Tg 通知頻道 👉🏻[L管资源社](https://t.me/lgShare/132)👈🏻**<br>
 <br>
+✈️优质专线机场送Emby影视服务<br>
+💡Emby主流资源不完全指北<br>
+✔️资源多,更新快,秒开4K,极速观影<br>
+🦋QuantumultX等最佳懒人配置<br>
+YoKerG | 游客科技圈: https://t.me/YoKerG<br>
+资源分享：https://t.me/lgShare<br>
+<br>
+<br>
+<br>
 **✈️自用优质机场[送🎬Emby]**
 <br>
 [《Emby方案指南》🔜快查看←点击此处](https://t.me/lgShare/132)
