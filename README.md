@@ -38,6 +38,7 @@ YoKerG | 游客科技圈: https://t.me/YoKerG<br>
 <<<<<<<<<<<<<<<<<<<<<<<<<<<<<br>
 PS: [各平台Emby挂载播放软件推荐](https://t.me/lgShare/121)<br>
 PS: [各平台VPN代理客户端整理推荐](https://t.me/lgShare/97)<br>
+PS: [全网最佳QuantumultX懒人配置](https://t.me/lgShare/150)<br>
 
 
 <br>
