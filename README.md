@@ -1,4 +1,4 @@
-**Tg 通知頻道 👉🏻[L管资源社](https://t.me/lgShare/132)👈🏻**<br>
+**Tg 通知頻道 👉🏻[蓝蝶资源社](https://t.me/lgShare/132)👈🏻**<br>
 <br>
 ✈️优质专线机场送Emby影视服务<br>
 💡Emby主流资源不完全指北<br>
