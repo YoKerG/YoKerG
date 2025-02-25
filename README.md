@@ -1,10 +1,10 @@
 **Tg 通知頻道 👉🏻[蓝蝶资源社🦋](https://t.me/lgShare/132)👈🏻**<br>
 <br>
-✈️优质专线机场送Emby影视服务<br>
-💡Emby主流资源不完全指北<br>
-✔️资源多,更新快,秒开4K,极速观影<br>
-🦋QuantumultX等最佳懒人配置(进阶)<br>
-YoKerG | 游客科技圈: https://t.me/YoKerG<br>
+✈️优质专线机场送𝐄𝐦𝐛𝐲影视服务<br>
+💡 𝐄𝐦𝐛𝐲主流资源不完全指北<br>
+✔️资源多,更新快,秒开𝟒𝐊,极速观影<br>
+🦋𝐐𝐮𝐚𝐧𝐭𝐮𝐦𝐮𝐥𝐭𝐗等最佳懒人配置(进阶)<br>
+𝐘𝐨𝐊𝐞𝐫𝐆 | 游客科技圈: https://t.me/YoKerG<br>
 资源分享：https://t.me/lgShare<br>
 <br>
 <br>
